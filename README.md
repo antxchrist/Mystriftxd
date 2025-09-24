@@ -1,1 +1,0 @@
-# mystrift.github.io
